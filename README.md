@@ -1,1 +1,1 @@
-[https://ZmicerOk.github.io/test](https://ZmicerOk.github.io/test/index.html)
+[https://ZmicerOk.github.io/test/cv](https://ZmicerOk.github.io/test/cv)
